@@ -3,7 +3,7 @@ Profile
 # **Ryad Juliano**
 
 **Software Engineer — Mobile & Web**
-Batam / Indonesia · [ryad@email.com](mailto:ryad@email.com) · +62-8xx-xxxx-xxxx · [github.com/your-github](https://github.com/your-github) · [linkedin.com/in/your-handle](https://linkedin.com/in/your-handle)
+Jakarta / Indonesia · [ryadjuliano@gmail.com](mailto:ryadjuliano@gmail.com) · +62-812-7632-7000 · [github.com/your-github](https://github.com/ryadjuliano) · [linkedin.com/in/ryad-juliano-55646746/](https://www.linkedin.com/in/ryad-juliano-55646746/)
 
 ---
 
